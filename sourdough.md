@@ -1,8 +1,7 @@
 **Ingredients**
 
 150g bubbly, active sourdough starter
-250g warm water (see Note 2)
-25g olive oil
+350g water (see Note 2)
 500g bread flour (not all purpose flour)
 10g fine sea salt
 fine ground cornmeal or non-stick parchment paper
@@ -14,7 +13,7 @@ You will need a 5 1/2 or 6 quart Dutch oven for baking
 
 **Instructions**__
 **Make The Dough**__
-In a large bowl, add the sourdough starter, water and olive oil. Mix with a fork to combine, then add the flour and salt. Continue mixing until the dough becomes stiff, then squish it together with your hands to incorporate all the flour. The dough will be rough and shaggy.
+In a large bowl, add the sourdough starter and water . Mix with a fork to combine, then add the flour and salt. Continue mixing until the dough becomes stiff, then squish it together with your hands to incorporate all the flour. The dough will be rough and shaggy.
 Cover the bowl with plastic wrap, reusable wrap, or very damp kitchen towel. Let rest (autolyse) for 30 minutes to 1 hour.
 After resting, return to the bowl and work the dough into a rough ball, about 15 seconds. 
 
