@@ -1,4 +1,4 @@
-Ingredients
+**Ingredients**
 
 150g bubbly, active sourdough starter
 250g warm water (see Note 2)
@@ -6,6 +6,11 @@ Ingredients
 500g bread flour (not all purpose flour)
 10g fine sea salt
 fine ground cornmeal or non-stick parchment paper
+
+**Notes, Tips & Equipment**__
+Weigh your ingredients with a digital scale for best results
+For a more soft and pliable dough, increase the water up to 300 g- 325 g total. Use a floured, cloth-lined bowl or proofing basket (instead of the Dutch oven) for the second rise.
+You will need a 5 1/2 or 6 quart Dutch oven for baking
 
 **Instructions**__
 **Make The Dough**__
